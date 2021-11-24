@@ -1,2 +1,3 @@
 # binancebot
-BINANCE NFT BOT
+ВСЕ ПОДРОБНОСТИ ТУТ -
+t.me/nftbot_binance
